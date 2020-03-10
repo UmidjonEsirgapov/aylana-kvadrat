@@ -1,0 +1,1 @@
+# aylana-kvadrathaqida misol
